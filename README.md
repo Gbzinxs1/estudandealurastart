@@ -10,4 +10,4 @@ gabrielfreitas2013i@gmail.com
 
 @bielvais
 
-![file:///C:/Users/Bila/Downloads/jujutsu-kaisen-crimsongif.gif](link)
+
